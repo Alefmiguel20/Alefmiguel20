@@ -1,4 +1,4 @@
-## Hi there, Seja bem vindo(a) ao meu perfil 💙💙
+## Ola, Seja bem vindo(a) ao meu perfil 💙💙
 meu nome e Alef Miguel Amaro Ribeiro
 
 Estou estudando na Alura
